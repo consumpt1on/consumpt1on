@@ -5,7 +5,37 @@
 </div>
 
 <div align="center">
+<img width="872" alt="1000052403" src="https://github.com/user-attachments/assets/9159743f-abf7-4c3d-8e2b-39b4f04f7e58" />
+</div>
+
+˚ ⋅ ” people under 13 STRICTLY DNI .ᐟ „
+
+@ asher / p / azure .ᐟ ‧₊˚ ⋅ he ♰ they
+
+<div align="left">
 <img width="540" alt="1000052406" src="https://github.com/user-attachments/assets/0eb5edef-f2eb-4bfc-b88a-eaf5be6d5f3f" />
+</div>
+
+taken by ˚.୨୧˚
+
+★ ‧ @Ville ᐟᐟ
+
+"i can't see, it's sexual reaction
+
+you and me, it's animal attraction"
+
+<div align="left">
+<img width="540" alt="1" src="https://github.com/user-attachments/assets/8581a18c-e3d0-4dfe-ab3d-a8e0eed545a2" />
+</div>
+
+⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
+
+⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha 　 ₊  ◞　
+
+　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞
+
+<div align="center">
+<img width="872" alt="1000052403" src="https://github.com/user-attachments/assets/9159743f-abf7-4c3d-8e2b-39b4f04f7e58" />
 </div>
 
 <img src=https://i.ibb.co/MDN5yNWP/tumblr-8855b0769ed5c87475f71e124a1aab9d-f0f6f443-400.webp width=1000>
