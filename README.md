@@ -8,9 +8,9 @@
 <img width="872" alt="1000052403" src="https://github.com/user-attachments/assets/9159743f-abf7-4c3d-8e2b-39b4f04f7e58" />
 </div>
 
-˚ ⋅ ” people under 13 STRICTLY DNI .ᐟ „
+˚ ⋅ ” people under 13 strictly do not interact .ᐟ „
 
-@ asher / p / azure .ᐟ ‧₊˚ ⋅ he ♰ they
+@ shrimp / consume .ᐟ ‧₊˚ ⋅ it ♰ they
 
 <div align="left">
 <img width="540" alt="1000052406" src="https://github.com/user-attachments/assets/0eb5edef-f2eb-4bfc-b88a-eaf5be6d5f3f" />
@@ -20,19 +20,19 @@ taken by ˚.୨୧˚
 
 ★ ‧ @Ville ᐟᐟ
 
-"i can't see, it's sexual reaction
+"are we allies or enemies? 
 
-you and me, it's animal attraction"
+this will be the death of me"
 
 <div align="left">
 <img width="540" alt="1" src="https://github.com/user-attachments/assets/8581a18c-e3d0-4dfe-ab3d-a8e0eed545a2" />
 </div>
 
-⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
+⠀　⠀𐐪　⠀ the crane wives 🩵 ISFP 　🌸
 
 ⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha 　 ₊  ◞　
 
-　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞
+　˙　　˳　　⁺　　 art , talking , calling , keychains , posters , acrylic standees , plushies , fursuits ₊  ◞
 
 <div align="center">
 <img width="872" alt="1000052403" src="https://github.com/user-attachments/assets/9159743f-abf7-4c3d-8e2b-39b4f04f7e58" />
