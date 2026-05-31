@@ -5,6 +5,11 @@
 </div>
 
 <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=consumpt1on&label=Shrimpies&color=f29ee60) 🫧 <img alt="GitHub followers" src="https://img.shields.io/github/followers/consumpt1on?style=flat&label=Follower&color=orangee">
+</div>
+
+<div align="center">
 <img width="872" alt="1000052403" src="https://github.com/user-attachments/assets/9159743f-abf7-4c3d-8e2b-39b4f04f7e58" />
 </div>
 
