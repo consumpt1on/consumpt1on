@@ -6,7 +6,8 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=consumpt1on&label=Shrimpies&color=f29ee60) 🫧 <img alt="GitHub followers" src="https://img.shields.io/github/followers/consumpt1on?style=flat&label=Follower&color=orangee">
+![](https://komarev.com/ghpvc/?username=consumpt1on&label=Shrimpies&color=f29e
+e60) 🫧 <img alt="GitHub followers" src="https://img.shields.io/github/followers/consumpt1on?style=flat&label=Follower&color=orange">
 </div>
 
 <div align="center">
