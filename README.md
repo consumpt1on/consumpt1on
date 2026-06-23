@@ -53,3 +53,8 @@ this will be the death of me"
 
 <img src=https://i.ibb.co/MDN5yNWP/tumblr-8855b0769ed5c87475f71e124a1aab9d-f0f6f443-400.webp width=1000>
 <img width="1229" alt="1" src="https://github.com/user-attachments/assets/d52084a2-4f06-49c5-b39b-f1f97aad9c7d" />
+
+<div align="center">
+  
+Credit to [Shepherd](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+</div>
