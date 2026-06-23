@@ -21,9 +21,9 @@
 <img width="540" alt="1000052406" src="https://github.com/user-attachments/assets/0eb5edef-f2eb-4bfc-b88a-eaf5be6d5f3f" />
 </div>
 
-taken by ˚.୨୧˚
+single ˚.୨୧˚
 
-★ ‧ @Ville ᐟᐟ
+★ ‧ @.dizzyy_heix0u ᐟᐟ
 
 "are we allies or enemies? 
 
@@ -35,7 +35,7 @@ this will be the death of me"
 
 ⠀　⠀𐐪　⠀ the crane wives 🩵 ISFP 　🌸
 
-⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha 　 ₊  ◞　
+⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , wolfwalkers　 ₊  ◞　
 
 　˙　　˳　　⁺　　 art , talking , calling , keychains , posters , acrylic standees , plushies , fursuits ₊  ◞
 
