@@ -73,8 +73,9 @@ Credits to :
 <p align="center">
 @cyberdaydream, for 'Living with chronic illness' blinkie on Tumblr
 
-<p align="center">
-This GitHub was created by:
-
-<p align="center">
-<img width="600" alt="6954d7bb-8923-473b-a1bc-af19ccf817c6" src="https://github.com/user-attachments/assets/1b0125c1-5655-4538-8672-4bda9303f85c" />
+<div align="center">
+This GitHub was created by: 
+  
+[<img width="1600" alt="636695767-1b0125c1-5655-4538-8672-4bda9303f85c" src="https://github.com/user-attachments/assets/bc47c026-e544-4ccf-acce-ce711a240208" />](https://github.com/PinkiePieExplosion)
+</div>
+(Click this to go to his page) ^
